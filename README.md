@@ -7,4 +7,4 @@
 
 Download:
 =====
-https://drive.google.com/open?id=1VYracF9YvfSO0KFg_S_BHirxZHRqmrtI
+https://drive.google.com/file/d/1LOa6nALYkhgCi_IUCFDHk2zvRjLAcWX2/view?usp=sharing
